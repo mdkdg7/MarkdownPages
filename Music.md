@@ -6,8 +6,8 @@ I listen to most of my music on Spotify. Here's a link to their website:
 [Spotify](http://spotify.com)
 
 Some of my favorite artists are:
-> Polo G
-> Juice Wrld
-> The Kid Laroi
-> Jeris Johnson
+> Polo G,
+> Juice Wrld,
+> The Kid Laroi,
+> Jeris Johnson,
 > Machine Gun Kelly
