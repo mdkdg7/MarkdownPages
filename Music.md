@@ -1,4 +1,3 @@
-![Spotify](/images/spotify.png)
-
+![Spotify](images/spotify.png)
 
 [Spotify](http://spotify.com)
