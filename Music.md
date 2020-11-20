@@ -10,4 +10,4 @@ Some of my favorite artists are:
 > Juice Wrld,
 > The Kid Laroi,
 > Jeris Johnson,
-> Machine Gun Kelly
+> and Machine Gun Kelly
