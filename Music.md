@@ -1,3 +1,3 @@
-![Spotify](spotify.png)
+![Spotify](spotify.jpg)
 
 [Spotify](http://spotify.com)
