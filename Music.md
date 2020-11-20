@@ -1,4 +1,4 @@
-Music is one of my favorite things! I listen to it all day everyday.
+Music is one of my favorite things to do! I listen to it all day everyday.
 
 ![Spotify](https://miro.medium.com/max/1920/1*6C-KzhhXtq9uV2Ow2Oscag.jpeg)
 
